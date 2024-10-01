@@ -29,5 +29,3 @@ Instagram: @educacienciafastcode 
 Siga LinkedIn: https://lnkd.in/dUWasxhD 
 
 Threads: https://www.threads.net/@educacienciafastcode
-
-Compartilhar conhecimento e ajuda mútua relacionado a tecnologia e afins. Divulgar vagas , cursos , artigos, treinamentos, eventos e afins Documentos se for divulgar, apenas de domínio público ou de própria autoria.
