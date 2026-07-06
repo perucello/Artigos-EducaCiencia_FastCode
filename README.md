@@ -26,6 +26,8 @@ Grupo Whatsapp EducaCiência #2 - https://chat.whatsapp.com/FL3eE498wQNEaXLeiLn
 
 Instagram: @educacienciafastcode 
 
-Siga LinkedIn: https://lnkd.in/dUWasxhD 
+Siga LinkedIn EducaCiência FastCode: https://lnkd.in/dUWasxhD 
+
+LinkedIn Fabio Perucello https://www.linkedin.com/in/fabio-perucello
 
 Threads: https://www.threads.net/@educacienciafastcode
